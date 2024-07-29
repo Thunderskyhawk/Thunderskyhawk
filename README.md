@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Thunderskyhawk
+- 👀 I’m interested in learning coding/ the basics like python and to get a job in coding 
+- 🌱 I’m currently learning HTML
+- 💞️ I’m looking to collaborate on nothing because i am still learning 
+- 📫 How to reach me just dm me on discord (giganigga0945)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am learning about science and im looking into a job into nuclear science
